@@ -1,1 +1,1 @@
-# redaktirovanie file
+# senya file
